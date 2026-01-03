@@ -1,1 +1,2 @@
-# Costos-de-producci-n
+# Costos-de-producción
+Excede a las finalidades que se persigue, practicar un estudio minucioso sobre este particular, por lo cual solo se limitará el comentario a aquellos aspectos salientes desde el punto de vista de la inversión. Los principales componentes del costo de producción pueden agruparse en tres grandes conceptos a saber: materias primas, mano de obra directa y gastos generales de administración. 
